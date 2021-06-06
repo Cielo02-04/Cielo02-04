@@ -1,5 +1,11 @@
 ### Hi there 👋
-
+-🔭 I am currently in grade 11, at Colegio Seminario De Duitama.
+-🌱 I am currently learning many things, since being a student can acquire knowledge of different subjects of all subjects, English, programming, mathematics, and I really like to acquire new knowledge. 
+-👯 I am looking to collaborate in community works for people who need it since that is what I want to dedicate myself to, to help those who need me. 
+-🤔 I am looking for help to be able to create a good life project, to pass in a good university, where I can stand out very well.
+-📫 I live in Duitama, so it's quite easy to locate me, since it's a bit small place, so you usually know and know most people. 
+-😄 I'm usually called Cielito, which sounds quite tender and cute. 
+-⚡ I'm very dedicated, and I really like to strive for what I want until I achieve it.
 <!--
 **Cielo02-04/Cielo02-04** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
